@@ -1,2 +1,2 @@
-# nfms113.github.io
+# nfms113.mpale.tw
 沒朋友公告區
